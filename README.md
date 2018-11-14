@@ -1,1 +1,1 @@
-# good-syudy
+# good-study
